@@ -1,4 +1,4 @@
-# mathematics
+# Mathematics
 
 # Let's Understand Mathematics  
 
